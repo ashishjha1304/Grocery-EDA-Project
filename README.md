@@ -64,7 +64,6 @@ If you have any questions or suggestions, feel free to connect:
 
 **Ashish**  
 📧 ashishjha1304@outlook.com
-📍 India
 
 ---
 
